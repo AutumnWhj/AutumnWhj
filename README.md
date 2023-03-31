@@ -7,6 +7,6 @@
 
 **My email is: 439661734@qq.com**
 
-**QQ: 439661734, Telegram: @Jin_1001**
+**QQ微信同号: 439661734, Telegram: @Jin_1001**
 
 **Welcome to contact me about any tech Q/A!**
